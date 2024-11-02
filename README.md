@@ -1,11 +1,9 @@
-# Lithium Nuker V2 Cracked By @Mr.Joex
+# *Lithium Nuker V2 SRC*
 
- # Credits:
+*This tool for nuking discord servers, and gives you full access for discord servers from bot*
 
-* @Mr.Joex - Dev - Cracked
+***Example: https://www.youtube.com/watch?v=eaeFfrW_zZ0&t=1s***
 
-╔════════════════════════════╗      
-║     dsc.gg/hiddencam       ║
-║  Instagram.com/0xmrjoex    ║  
-║ https://guns.lol/0xmrjoex  ║  
-╚════════════════════════════╝   
+***WebSite: https://guns.lol/0xmrjoex***
+
+*Enjoy :D*
