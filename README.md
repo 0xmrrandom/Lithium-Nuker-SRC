@@ -1,4 +1,4 @@
-# Lithium-Nuker-SRC
+# *Lithium-Nuker-SRC*
 
 *This tool for n_uke servers discord, and gives u full access in discord server from bot*
 
