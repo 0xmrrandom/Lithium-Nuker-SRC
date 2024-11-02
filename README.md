@@ -6,4 +6,6 @@
 
 ***WebSite: https://guns.lol/0xmrjoex***
 
+***My Server Community: https://discord.gg/sool***
+
 *Enjoy :D*
