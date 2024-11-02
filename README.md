@@ -1,11 +1,11 @@
-# *Lithium-Nuker-SRC*
+# Lithium Nuker V2 Cracked By @Mr.Joex
 
-*This tool for n_uke servers discord, and gives u full access in discord server from bot*
+ # Credits:
 
-*This tool cracked by me and open source (DnSpy)*
+* @Mr.Joex - Dev - Cracked
 
-***WebSite: https://guns.lol/0xmrjoex***
-
-***Example: https://www.youtube.com/watch?v=eaeFfrW_zZ0&t=1s***
-
-*Enjoy :D*
+╔════════════════════════════╗      
+║     dsc.gg/hiddencam       ║
+║  Instagram.com/0xmrjoex    ║  
+║ https://guns.lol/0xmrjoex  ║  
+╚════════════════════════════╝   
